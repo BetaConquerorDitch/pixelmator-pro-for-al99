@@ -1,4 +1,4 @@
-
+Get the ultimate Pixelmator Pro for macOS extension with elite Pixelmator Pro for macOS Extension | AI upscaling + color correction. Featuring AI upscaling and color correction,
 
 
 
